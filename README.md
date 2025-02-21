@@ -1,4 +1,4 @@
-# Odyssée Stellaire
+# Odyssée Cosmique
 
 ## Description
 
